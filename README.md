@@ -1,1 +1,1 @@
-# Komunikacija-ra-unalo---mobilni-ure-aj
+# Komunikacija racunalo---mobilni uredaj
